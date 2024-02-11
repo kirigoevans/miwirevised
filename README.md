@@ -1,4 +1,6 @@
 **MIWIDEVELOPERS**
+
+
 We are a dynamic team of ICT enthusiasts based at Maseno University in the heart of Kisumu County, Kenya.
 Our mission is to change the game by harnessing the power of technology and driving positive impact. 
 Our diverse backgrounds and expertise converge to create a vibrant community where ideas flourish. 
